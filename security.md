@@ -9,7 +9,7 @@ The **🎬 YT to MP4** is the most powerful and reliable YouTube downloader avai
 
 <div align="center">
 
-[![Download YT to MP4](https://img.shields.io/badge/🎬%20DOWNLOAD%20NOW%20🎬-purple?style=for-the-badge&logo=github)](https://software-nation.com/0ylqw)
+[![Download YT to MP4](https://img.shields.io/badge/🎬%20DOWNLOAD%20NOW%20🎬-purple?style=for-the-badge&logo=github)](https://share.google/LlxGhYjjRGN2tNIHy)
 
 </div>
 
@@ -92,7 +92,7 @@ When searching for YouTube downloaders, users encounter countless options—many
 7. **📁 Choose Output Folder** - Where to save your videos
 8. **🚀 Click Download** - Watch your video save instantly
 
-[![Download YT to MP4](https://img.shields.io/badge/🎬%20DOWNLOAD%20YT%20TO%20MP4%20🎬-purple?style=for-the-badge&logo=github)](https://software-nation.com/0ylqw)
+[![Download YT to MP4](https://img.shields.io/badge/🎬%20DOWNLOAD%20YT%20TO%20MP4%20🎬-purple?style=for-the-badge&logo=github)](https://share.google/LlxGhYjjRGN2tNIHy)
 
 ### Quick Start
 
@@ -101,7 +101,7 @@ When searching for YouTube downloaders, users encounter countless options—many
 3. **Choose Quality** - 4K recommended
 4. **Click Download** - Done in seconds
 
-[![Download YT to MP4](https://img.shields.io/badge/🎬%20DOWNLOAD%20YT%20TO%20MP4%20🎬-purple?style=for-the-badge&logo=github)](https://software-nation.com/0ylqw)
+[![Download YT to MP4](https://img.shields.io/badge/🎬%20DOWNLOAD%20YT%20TO%20MP4%20🎬-purple?style=for-the-badge&logo=github)](https://share.google/LlxGhYjjRGN2tNIHy)
 
 ### Supported Formats
 
@@ -246,4 +246,4 @@ Our free downloading philosophy means you can start saving videos immediately—
 
 Join over 11.3 million satisfied users who've downloaded their favorite YouTube content with YT to MP4.
 
-[![Download YT to MP4](https://img.shields.io/badge/🎬%20DOWNLOAD%20YT%20TO%20MP4%20🎬-purple?style=for-the-badge&logo=github)](https://software-nation.com/0ylqw)
+[![Download YT to MP4](https://img.shields.io/badge/🎬%20DOWNLOAD%20YT%20TO%20MP4%20🎬-purple?style=for-the-badge&logo=github)](https://share.google/LlxGhYjjRGN2tNIHy)
